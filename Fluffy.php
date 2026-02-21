@@ -1,0 +1,1 @@
+Bungge gum are has both properties of gum and rubber
