@@ -1,1 +1,0 @@
-Killua God of Thunder
