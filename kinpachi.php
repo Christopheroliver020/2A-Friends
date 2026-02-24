@@ -1,0 +1,1 @@
+With this treasure I summoned general divine Mahoraga
